@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse-
+# A girl in a red dress
