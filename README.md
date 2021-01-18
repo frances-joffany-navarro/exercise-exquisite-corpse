@@ -5,4 +5,7 @@ The **sky** is blue and the sun shines brightly </br>
 The day goes by and the **moon** rises. <br/>
 It was a *full moon* tonight. <br/>
 ***The moon is shinning bight like a diamond***<br/>
+**And the sun is coming by**<br/>
+The mornig coming on ***time***<br/>
+Ready for the ***lime***
 
